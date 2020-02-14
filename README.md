@@ -1,3 +1,3 @@
-# edit
+# editz v 6.0
 SIES COLLEGE FEST
 23 Jan
